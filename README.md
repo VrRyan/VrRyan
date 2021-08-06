@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VrRyan.
+- 👀 I’m interested in Tech.
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on bananas.
+- 📫 How to reach me (Discord) ~Ryan~#2648
